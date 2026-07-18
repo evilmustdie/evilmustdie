@@ -43,5 +43,5 @@
 
 <hr>
 <p align="center">
-<img src="https://i.pinimg.com/736x/f9/46/10/f946105c272121778dd8c133bfbcb112.jpg" width="800" height="200" />
+<img src="https://i.pinimg.com/736x/58/44/a4/5844a4b032f8c5bbfa5df5e0d235a77a.jpg" width="650" height="250" />
 </p> 
