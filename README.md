@@ -3,7 +3,7 @@
 </p> 
 <hr>
 
-## ☆ [MAIN PROFILE](https://github.com/evil-xisumer) ☆ C+H AND INT ALWAYS !!!!!
+## ☆ [MAIN PROFILE](https://github.com/evil-xisumer) ☆ CUDDLES, INTERACTIONS AND FRQS ALWAYS OK !!!!!
 
 <p align="center">
 <img src="https://64.media.tumblr.com/4cc2b13d32234d051a5200b6b946fd40/4f2225763c1cdb1a-7a/s100x200/9cd3b78f9442e366a18050db514bcfbbe7fcd5a8.gifv"/> <img src="https://i.postimg.cc/nh88374P/6mvqqu.gif" /> <img src="https://64.media.tumblr.com/ff79e98756b7b6936d901ea22af9a73e/de1ccaffe8d295a3-23/s100x200/9671009c643a594df9403499c4d5a68e695ac5b9.pnj" /> <img src="https://64.media.tumblr.com/cdbc1a0ea02030b2b45044485bc66372/9c3eb37a74c1e43f-29/s100x200/fba07a5f89cfccf63cf88311b8fd986dfdffb5e6.pnj" width="90" height="58"/> <img src="https://64.media.tumblr.com/ee5b6ebf40681cd56d75902b89b2dd0b/4f2225763c1cdb1a-28/s100x200/018ae144363e51987b1a75003f727c7256884437.gifv" /> <img src="https://i.postimg.cc/s20b7tyQ/twisted.jpg" width="90" height="55"/>  <img src="https://64.media.tumblr.com/bc6c92e15bd4c6ce9c3c0fe621b35fd8/a6612435fc191044-64/s250x400/7d1f0d7382f11a8d96a8d0e5448c5f00b9d77faa.gifv" width="100" height="56"/>
