@@ -18,8 +18,7 @@
   </p> 
   
  
-  <p align="center"> 17 , it/its , intersex + agender , fagdyke/gaybian + polyamorous freakazoid , some sort of bloodthirsty were-creature
-  </p> 
+  <p align="center"> 17 , it/its , intersex + agender , fagdyke/gaybian + polyamorous freakazoid , some sort of bloodthirsty were-creature </p> 
   
   <p align="center">
 <img src="https://i.pinimg.com/736x/9f/93/7d/9f937d147d3b5814ccd940d36643cdc3.jpg" width="400" height="300"/>
