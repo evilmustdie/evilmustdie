@@ -21,11 +21,17 @@
   <p align="center"> 17 , it/its , intersex + agender , fagdyke/gaybian + polyamorous
 
   if we've interacted feel free to add us on discord!! @evilxisumer </p> 
-  <p align="center"> <b>I LOVE MICHAEL ROMANCE <b> </p>  
- 
-<p align="center">
+  
+  <p align="center">
 <img src="https://i.pinimg.com/736x/9f/93/7d/9f937d147d3b5814ccd940d36643cdc3.jpg" width="400" height="300"/>
 </p> 
+
+  <p align="center"> not the worlds nastiest pervert but pretty close
+    </p>
+  <p align="center">
+    <img src="https://media1.tenor.com/m/kRKKzND9NsEAAAAd/puppyfrankiero-frank-iero.gif" width="120" height="110"/>
+  </p>
+
   
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=evilmustdie&color=b5280f&style=flat-square&label=you_are_view_number.." />
@@ -36,7 +42,7 @@
 </p>
 
 <p align="center">
-<img src="https://i.postimg.cc/3r6QL4jr/Tumblr_l_68091973028555.gif" width="130" height="90"/>
+<img src="https://i.postimg.cc/3r6QL4jr/Tumblr_l_68091973028555.gif" width="130" height="80"/>
 </p> 
 
 
