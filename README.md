@@ -24,8 +24,9 @@
   <p align="center"> <b>I LOVE MICHAEL ROMANCE <b> </p>  
  
 <p align="center">
-<img src="https://64.media.tumblr.com/fa10a7fb50568cf232c5db7e756856a6/8533d058354f2b10-f7/s540x810/130fbd0dfe721b34d1388834b0ac7d87befba423.pnj" />
+<img src="https://i.pinimg.com/736x/9f/93/7d/9f937d147d3b5814ccd940d36643cdc3.jpg" width="400" height="300"/>
 </p> 
+  
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=evilmustdie&color=b5280f&style=flat-square&label=you_are_view_number.." />
 </p> 
@@ -35,7 +36,7 @@
 </p>
 
 <p align="center">
-<img src="https://i.postimg.cc/3r6QL4jr/Tumblr_l_68091973028555.gif" width="130" height="70"/>
+<img src="https://i.postimg.cc/3r6QL4jr/Tumblr_l_68091973028555.gif" width="130" height="90"/>
 </p> 
 
 
