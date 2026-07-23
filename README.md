@@ -19,6 +19,10 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/dcdba5b86ac5a5a30809f448526730d9/de1ccaffe8d295a3-95/s250x400/68a4731d678363eba6b1becbb6e8579c22b177c4.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/8f104590e9594d2e01c626497155229b/40a5f2f6c73ca09f-a2/s250x400/6fb4c8259c2d5b0c667ceb7e79357203b59957b5.gifv" width="170" height="30"/>  <img src="https://64.media.tumblr.com/d78d75d6ed6bb67174cc6e364c7e1219/de1ccaffe8d295a3-93/s250x400/d744c2aa3589c8ff13322286221ed2a9846bd9e3.gifv" width="170" height="30"/>
   </p> 
+
+  <p align="center">
+<img src="https://64.media.tumblr.com/dcdba5b86ac5a5a30809f448526730d9/de1ccaffe8d295a3-95/s250x400/68a4731d678363eba6b1becbb6e8579c22b177c4.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/c5129bb05f300ca9bc4f56ee93189926/ae83b7b8362e4704-9d/s250x400/7b688d6d992d70db31d5942a0f516918376ee62f.gifv" width="170" height="30"/>  <img src="https://64.media.tumblr.com/d78d75d6ed6bb67174cc6e364c7e1219/de1ccaffe8d295a3-93/s250x400/d744c2aa3589c8ff13322286221ed2a9846bd9e3.gifv" width="170" height="30"/>
+  </p> 
   
  
   <p align="center"> 17 , it/its , intersex + agender , fagdyke/gaybian + polyamorous freakazoid , some sort of bloodthirsty were-creature </p> 
