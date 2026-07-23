@@ -3,7 +3,8 @@
 </p> 
 <hr>
 
-## ☆ [main profile](https://github.com/evil-xisumer) ☆ CUDDLES, INTERACTIONS AND FRQS ALWAYS OK !!!!! ☆ [pronouns.cc](https://pronouns.cc/@evilxisumer/Frankie) ☆
+## ☆ [main profile](https://github.com/evil-xisumer) ☆ CUDDLES, INTERACTIONS AND FRQS ALWAYS OK !!!!! 
+☆ [pronouns.cc](https://pronouns.cc/@evilxisumer/Frankie) ☆
 
 
 <p align="center">
