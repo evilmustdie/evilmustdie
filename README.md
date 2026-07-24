@@ -1,11 +1,11 @@
+## TELL ME I'M A BAD MAN, KICK ME LIKE A STRAY.
 <p align="center">
 <img src="https://i.pinimg.com/736x/c2/39/89/c23989c2b2669ebd862fe2d1f28163b5.jpg" width="600" height="300"/>
 </p> 
-<hr>
 
 ## ☆ [main profile](https://github.com/evil-xisumer) ☆ CUDDLES, INTERACTIONS AND FRQS ALWAYS OK !!!!! 
 <p align="center">
-  ☆ <a href="https://pronouns.cc/@evilxisumer/Frankie">pronouns.cc</a> ☆
+  ☆ <a href="https://github.com/evilmustdie/info/blob/main/README.md">MORE INFO</a> ☆ <a href="https://pronouns.cc/@evilxisumer/Frankie">pronouns.cc</a> ☆
 </p>
 
 <p align="center">
