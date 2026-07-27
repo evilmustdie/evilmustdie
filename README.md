@@ -26,6 +26,8 @@
   
  
   <p align="center"> 17 , it/its , intersex + agender , fagdyke/gaybian + polyamorous freakazoid , some sort of bloodthirsty were-creature </p> 
+    <p align="center"> aswell as mcr im also really into james marriott and cavetown at the minute. just really revisiting all the music that go me thru secondary school LOL </p> 
+  
   
   <p align="center">
 <img src="https://i.pinimg.com/736x/9f/93/7d/9f937d147d3b5814ccd940d36643cdc3.jpg" width="400" height="300"/>
