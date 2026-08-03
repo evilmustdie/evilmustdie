@@ -26,7 +26,7 @@
   
  
   <p align="center"> <b> 17 , it/its , eng , intersex + agender , fagdyke/gaybian + polyamorous freakazoid , some sort of bloodthirsty were-creature </b></p> 
-    <p align="center"> aswell as mcr im also really into james marriott frank iero and cavetown at the minute. just really revisiting all the music that got me thru secondary school LOL </p> 
+    <p align="center"> if youre under 15 pls iwc!!! aswell as mcr im also really into james marriott frank iero and cavetown at the minute. just really revisiting all the music that got me thru secondary school LOL </p> 
   
   
   <p align="center">
