@@ -1,7 +1,13 @@
 ## THIS IS HOW WE LIKE TO DO IT IN THE MURDER SCENE - MCR WEMBLEY 10/07/26 ♡
 <p align="center">
-<img src="https://i.pinimg.com/736x/c2/39/89/c23989c2b2669ebd862fe2d1f28163b5.jpg" width="600" height="300"/>
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=5d7i3aqvhk83zhn86v8ifdx91&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
+  </a>
+</p>
+<p align="center">
+<img src="https://64.media.tumblr.com/df98f713394b4d5230be0a1d21753a59/ed756fb14e762cf4-9b/s540x810/14ce8924b40a7365e49db6f7a9a1c21766b0f0ab.pnj" width="630" height="250"/>
 </p> 
+
 
 ## ☆ [main profile](https://github.com/evil-xisumer) ☆ CUDDLES, INTERACTIONS AND FRQS ALWAYS OK !!!!! 
 <p align="center">
@@ -66,5 +72,5 @@
 
 <hr>
 <p align="center">
-<img src="https://i.pinimg.com/736x/58/44/a4/5844a4b032f8c5bbfa5df5e0d235a77a.jpg" width="650" height="250" />
+<img src="https://i.pinimg.com/736x/c2/39/89/c23989c2b2669ebd862fe2d1f28163b5.jpg" width="630" height="250"/>
 </p> 
