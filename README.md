@@ -1,7 +1,7 @@
 ## THIS IS HOW WE LIKE TO DO IT IN THE MURDER SCENE - MCR WEMBLEY 10/07/26 ♡
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=5d7i3aqvhk83zhn86v8ifdx91&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=5d7i3aqvhk83zhn86v8ifdx91&cover_image=true&theme=Natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
   </a>
 </p>
 <p align="center">
