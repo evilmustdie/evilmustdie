@@ -9,7 +9,7 @@
 </p> 
 
 
-## ☆ [main profile](https://github.com/evil-xisumer) ☆ CUDDLES, INTERACTIONS AND FRQS ALWAYS OK !!!!! 
+## ☆ [main profile](https://github.com/evil-xisumer) ☆ CUDDLES & INTERACTIONS ALWAYS OK !!!!! ASK TO FRQ
 <p align="center">
   ☆ <a href="https://github.com/evilmustdie/info/blob/main/README.md">XTRA INFO</a> ☆ <a href="https://pronouns.cc/@evilxisumer/Frankie">pronouns.cc</a> ☆
 </p>
