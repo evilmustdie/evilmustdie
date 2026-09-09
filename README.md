@@ -1,11 +1,11 @@
-## ALL WE ARE IS BULLETS - MCR WEMBLEY 10/07/26 ♡
+## " i want your violation!!! " - MCR WEMBLEY 10/07/26  ♡ ♡
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=5d7i3aqvhk83zhn86v8ifdx91&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=642421&bar_color_cover=false">
   </a>
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/df98f713394b4d5230be0a1d21753a59/ed756fb14e762cf4-9b/s540x810/14ce8924b40a7365e49db6f7a9a1c21766b0f0ab.pnj" width="630" height="250"/>
+<img src="https://i.pinimg.com/736x/a0/47/04/a0470419306e1631ee7ba94f44e7c6d1.jpg" width="580" height="250"/>
 </p> 
 
 
@@ -32,7 +32,7 @@
   
  
   <p align="center"> <b> 17 , it/its , eng , intersex + agender , fagdyke/gaybian + polyamorous freakazoid , some sort of bloodthirsty were-creature </b></p> 
-    <p align="center"> if youre under 15 pls iwc!!! aswell as mcr im also really into james marriott frank iero and cavetown at the minute. just really revisiting all the music that got me thru secondary school LOL </p> 
+    <p align="center"> if youre under 15 pls iwc. if we've spoken a couple times feel free to add me on discord @evilxisumer ! </p> 
   
   
   <p align="center">
