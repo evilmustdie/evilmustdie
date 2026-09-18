@@ -32,17 +32,12 @@
   
  
   <p align="center"> <b> 17 , it/its , eng , intersex + agender , fagdyke/gaybian + polyamorous freakazoid , some sort of bloodthirsty were-creature </b></p> 
-    <p align="center"> if youre under 15 pls iwc. if we've spoken a couple times feel free to add me on discord @evilxisumer ! </p> 
+    <p align="center"> if youre under 15 pls iwc. if we've spoken a couple times feel free to add me on discord @evilxisumer ! i luv ALL mcr ships and have no preference for any particular pairing, talk to me about your otp or whatever!! (not including waycest, strictly dni if you enjoy that.) </p> 
   
   
   <p align="center">
 <img src="https://i.pinimg.com/736x/9f/93/7d/9f937d147d3b5814ccd940d36643cdc3.jpg" width="400" height="300"/>
 </p> 
-
-<p align="center">
-  i listen to most of my music on an ipod classic 6th gen or on my cd player/stereo cause spotify sucks ballz now,,
-  i LUV physical media plsss talk to me about it,,, my disc collection is kinda lackluster due to little space but i buy/sell/trade all the time to make up for it
-  </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/21a1a821842222e58890781dfad1d7d8/cd08a8b4b4faa9e3-72/s100x200/678f923cdc01f143f96bb43f00003a635abe7e96.gifv" width="100" height="56"/>
   <img src="https://64.media.tumblr.com/4df8e1e74c9f91660b8fdc7349469afc/cd08a8b4b4faa9e3-c1/s250x400/bf777600c3e02658422553964fee270702688480.gifv" width="190" height="30"/>
