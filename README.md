@@ -13,10 +13,13 @@
 <p align="center">
   ☆ <a href="https://github.com/evilmustdie/info/blob/main/README.md">XTRA INFO</a> ☆ <a href="https://pronouns.cc/@evilxisumer/Frankie">pronouns.cc</a> ☆
 </p>
-
 <p align="center">
 <img src="https://64.media.tumblr.com/4cc2b13d32234d051a5200b6b946fd40/4f2225763c1cdb1a-7a/s100x200/9cd3b78f9442e366a18050db514bcfbbe7fcd5a8.gifv" width="95" height="60"/> <img src="https://64.media.tumblr.com/a210fb91cd82a0e4f000592c98e07d4e/f0936a4cdbe56572-56/s250x400/c1f6bd20ebdf42462888dc666d750813af166d7a.gifv" width="95" height="60"/> <img src="https://64.media.tumblr.com/c09789a739e0402282d7642c7a6a6b46/5fe68fdf067c0d84-c9/s100x200/f56a9891a25c968719b035cb7a12963f09236f7f.pnj" width="95" height="63"/> <img src="https://64.media.tumblr.com/62db8b7d4b64cf8361aa5edbdb31a375/97a89db4bc6bb264-b8/s250x400/4bfce307d2a2ef1b2e4000a3d2b0254640ab53b5.pnj" width="95" height="60"/> <img src="https://64.media.tumblr.com/c4f93d684f977b308d606e842721d6fd/7e8d5519880c2f6f-ce/s100x200/7dc22973a4c092907f2f675467a58bd7357e47ce.gifv" width="95" height="58"/> <img src="https://64.media.tumblr.com/ee5b6ebf40681cd56d75902b89b2dd0b/4f2225763c1cdb1a-28/s100x200/018ae144363e51987b1a75003f727c7256884437.gifv" width="95" height="59"/>
   </p> 
+
+  <p align="center"> <b> 17 , it/its , eng , intersex + agender , fagdyke/gaybian + polyamorous freakazoid , some sort of bloodthirsty were-creature </b></p> 
+    <p align="center"> if youre under 15 pls iwc. if we've spoken a couple times feel free to add me on discord @evilxisumer ! i luv ALL mcr ships and have no preference for any particular pairing, talk to me about your otp or whatever!! (not including waycest, strictly dni if you enjoy that.) </p> 
+
 
   <p align="center">
 <img src="https://64.media.tumblr.com/7bb340e63207b57771690646e224a5f8/1fae3b5789510330-fd/s250x400/ec9123685ae7448d35103da32ff5f230763008de.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/090226272df3fb35032c3d5cf321c76e/014ff2a3a78446ed-29/s400x600/5507dcab3f70d80cd0e00ce67dfef35f3635135c.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/7a5a93e7df8159d01c44c06c6e7d336e/f51cd4fde98461ad-25/s250x400/10a2be09642f1a1765415dcabe407ef19ceb3af3.gifv" width="170" height="30"/>
@@ -30,11 +33,7 @@
 <img src="https://64.media.tumblr.com/67e10cfc622e29ed122b731e0e762bc6/de1ccaffe8d295a3-64/s250x400/436a7a81e8ca4f589164f973d4c689553e302341.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/c5129bb05f300ca9bc4f56ee93189926/ae83b7b8362e4704-9d/s250x400/7b688d6d992d70db31d5942a0f516918376ee62f.gifv" width="170" height="30"/>  <img src="https://64.media.tumblr.com/886458412454249acbc756528fd5a798/975c258b7d1cd6c1-e7/s500x750/c8c61b410ee06edcba8dd3aa4196522fee3f9f6c.gifv" width="170" height="30"/>
   </p> 
   
- 
-  <p align="center"> <b> 17 , it/its , eng , intersex + agender , fagdyke/gaybian + polyamorous freakazoid , some sort of bloodthirsty were-creature </b></p> 
-    <p align="center"> if youre under 15 pls iwc. if we've spoken a couple times feel free to add me on discord @evilxisumer ! i luv ALL mcr ships and have no preference for any particular pairing, talk to me about your otp or whatever!! (not including waycest, strictly dni if you enjoy that.) </p> 
-  
-  
+
   <p align="center">
 <img src="https://i.pinimg.com/736x/9f/93/7d/9f937d147d3b5814ccd940d36643cdc3.jpg" width="400" height="300"/>
 </p> 
