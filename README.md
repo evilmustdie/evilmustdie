@@ -18,7 +18,7 @@
   </p> 
 
   <p align="center"> <b> 17 , it/its , eng , intersex + agender , fagdyke/gaybian + polyamorous freakazoid , some sort of bloodthirsty were-creature </b></p> 
-    <p align="center"> if youre under 15 pls iwc. if we've spoken a couple times feel free to add me on discord @evilxisumer ! i luv ALL mcr ships and have no preference for any particular pairing, talk to me about your otp or whatever!! (not including waycest, strictly dni if you enjoy that.) </p> 
+    <p align="center"> if youre under 15 pls iwc. if we've spoken a couple times feel free to add me on discord @evilxisumer ! i luv ALL mcr ships and have no preference for any particular pairing, talk to me about your otp or whatever!! (not including waycest, strictly dni if you enjoy that thx.) </p> 
 
 
   <p align="center">
