@@ -32,7 +32,7 @@
   <p align="center">
 <img src="https://64.media.tumblr.com/67e10cfc622e29ed122b731e0e762bc6/de1ccaffe8d295a3-64/s250x400/436a7a81e8ca4f589164f973d4c689553e302341.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/c5129bb05f300ca9bc4f56ee93189926/ae83b7b8362e4704-9d/s250x400/7b688d6d992d70db31d5942a0f516918376ee62f.gifv" width="170" height="30"/>  <img src="https://64.media.tumblr.com/886458412454249acbc756528fd5a798/975c258b7d1cd6c1-e7/s500x750/c8c61b410ee06edcba8dd3aa4196522fee3f9f6c.gifv" width="170" height="30"/>
   </p> 
-  
+  <p align="center"> sort of an introject of all the mcr members. dont know how that happened </p> 
 
   <p align="center">
 <img src="https://i.pinimg.com/736x/9f/93/7d/9f937d147d3b5814ccd940d36643cdc3.jpg" width="400" height="300"/>
