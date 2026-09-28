@@ -21,16 +21,12 @@
     <p align="center"> if youre under 15 pls iwc. if we've spoken a couple times feel free to add me on discord @evilxisumer ! i luv ALL mcr ships and have no preference for any particular pairing, talk to me about your otp or whatever!! (not including waycest, strictly dni if you enjoy that thx.) </p> 
 
 
-  <p align="center">
-<img src="https://64.media.tumblr.com/7bb340e63207b57771690646e224a5f8/1fae3b5789510330-fd/s250x400/ec9123685ae7448d35103da32ff5f230763008de.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/090226272df3fb35032c3d5cf321c76e/014ff2a3a78446ed-29/s400x600/5507dcab3f70d80cd0e00ce67dfef35f3635135c.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/7a5a93e7df8159d01c44c06c6e7d336e/f51cd4fde98461ad-25/s250x400/10a2be09642f1a1765415dcabe407ef19ceb3af3.gifv" width="170" height="30"/>
-  </p>
-
 <p align="center">
-<img src="https://64.media.tumblr.com/dcdba5b86ac5a5a30809f448526730d9/de1ccaffe8d295a3-95/s250x400/68a4731d678363eba6b1becbb6e8579c22b177c4.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/589739921dcc220161cd3ac50829ab63/e0f97432544637b0-7e/s250x400/03731db51b50748f5f6de0bea7aebf48fe527d8b.pnj" width="170" height="30"/>  <img src="https://64.media.tumblr.com/d78d75d6ed6bb67174cc6e364c7e1219/de1ccaffe8d295a3-93/s250x400/d744c2aa3589c8ff13322286221ed2a9846bd9e3.gifv" width="170" height="30"/>
+<img src="https://64.media.tumblr.com/7bb340e63207b57771690646e224a5f8/1fae3b5789510330-fd/s250x400/ec9123685ae7448d35103da32ff5f230763008de.gifv" width="170" height="30"/>  <img src="https://64.media.tumblr.com/589739921dcc220161cd3ac50829ab63/e0f97432544637b0-7e/s250x400/03731db51b50748f5f6de0bea7aebf48fe527d8b.pnj" width="170" height="30"/>  <img src="https://64.media.tumblr.com/d78d75d6ed6bb67174cc6e364c7e1219/de1ccaffe8d295a3-93/s250x400/d744c2aa3589c8ff13322286221ed2a9846bd9e3.gifv" width="170" height="30"/>
   </p> 
 
   <p align="center">
-<img src="https://64.media.tumblr.com/67e10cfc622e29ed122b731e0e762bc6/de1ccaffe8d295a3-64/s250x400/436a7a81e8ca4f589164f973d4c689553e302341.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/c5129bb05f300ca9bc4f56ee93189926/ae83b7b8362e4704-9d/s250x400/7b688d6d992d70db31d5942a0f516918376ee62f.gifv" width="170" height="30"/>  <img src="https://64.media.tumblr.com/886458412454249acbc756528fd5a798/975c258b7d1cd6c1-e7/s500x750/c8c61b410ee06edcba8dd3aa4196522fee3f9f6c.gifv" width="170" height="30"/>
+<img src="https://64.media.tumblr.com/67e10cfc622e29ed122b731e0e762bc6/de1ccaffe8d295a3-64/s250x400/436a7a81e8ca4f589164f973d4c689553e302341.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/c5129bb05f300ca9bc4f56ee93189926/ae83b7b8362e4704-9d/s250x400/7b688d6d992d70db31d5942a0f516918376ee62f.gifv" width="170" height="30"/>  <img src="https://64.media.tumblr.com/7a5a93e7df8159d01c44c06c6e7d336e/f51cd4fde98461ad-25/s250x400/10a2be09642f1a1765415dcabe407ef19ceb3af3.gifv" width="170" height="30"/>
   </p> 
   <p align="center"> sort of an introject of all the mcr members. dont know how that happened. idgaf about doubles </p> 
 
