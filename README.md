@@ -1,7 +1,7 @@
 ## ☆ [alt](https://github.com/evil-xisumer) ☆ CUDDLES & INTERACTIONS ALWAYS OK !!!!! ASK TO FRQ
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=evilmustdie&color=b5280f&style=flat-square&label=you_are_view_number.." />
+<img src="https://komarev.com/ghpvc/?username=evilmustdie&color=841b15&style=flat-square&label=you_are_view_number.." />
 </p> 
 <p align="center"> saw mcr @ wembley 10/07/26  ♡ ♡ </p> 
 
