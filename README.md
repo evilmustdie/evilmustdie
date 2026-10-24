@@ -26,7 +26,6 @@
 <img src="https://64.media.tumblr.com/67e10cfc622e29ed122b731e0e762bc6/de1ccaffe8d295a3-64/s250x400/436a7a81e8ca4f589164f973d4c689553e302341.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/c5129bb05f300ca9bc4f56ee93189926/ae83b7b8362e4704-9d/s250x400/7b688d6d992d70db31d5942a0f516918376ee62f.gifv" width="170" height="30"/>  <img src="https://64.media.tumblr.com/c92e1edb58a7ba1320d20b52f104dbe4/f31105e609eceb88-b5/s400x600/462bdf3a322e80d8d41f91a58c92004fe7c22105.webp" width="170" height="30"/>
   </p> 
   <p align="center"> sort of an introject of all the mcr members. dont know how that happened. idgaf about doubles. despite my occasional delusional episodes i am FULLY aware i am not actually the real people and i dont/have never claimed to be. dont like it dont interact🙏🙏🙏 </p> 
-
  <p align="center">
 ☆☆☆
 </p> 
@@ -35,13 +34,6 @@
 </p> 
 
 
-
 <p align="center">
 <img src="https://i.postimg.cc/3r6QL4jr/Tumblr_l_68091973028555.gif" width="130" height="80"/>
-</p> 
-
-
-<hr>
-<p align="center">
-<img src="https://i.pinimg.com/736x/c2/39/89/c23989c2b2669ebd862fe2d1f28163b5.jpg" width="630" height="250"/>
 </p> 
