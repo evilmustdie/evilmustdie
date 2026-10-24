@@ -27,19 +27,14 @@
   </p> 
   <p align="center"> sort of an introject of all the mcr members. dont know how that happened. idgaf about doubles. despite my occasional delusional episodes i am FULLY aware i am not actually the real people and i dont/have never claimed to be. dont like it dont interact🙏🙏🙏 </p> 
 
-
-  <p align="center">
-    <img src="https://media1.tenor.com/m/kRKKzND9NsEAAAAd/puppyfrankiero-frank-iero.gif" width="120" height="110"/>
-  </p>
-
-  
+ <p align="center">
+☆☆☆
+</p> 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=evilmustdie&color=b5280f&style=flat-square&label=you_are_view_number.." />
 </p> 
 
-<p align="center">
-☆☆☆
-</p>
+
 
 <p align="center">
 <img src="https://i.postimg.cc/3r6QL4jr/Tumblr_l_68091973028555.gif" width="130" height="80"/>
