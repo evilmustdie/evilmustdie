@@ -1,13 +1,13 @@
 ## " i want your violation!!! " - MCR WEMBLEY 10/07/26  ♡ ♡
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=5d7i3aqvhk83zhn86v8ifdx91&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=642421&bar_color_cover=false">
-  </a>
-</p>
+
 <p align="center">
 <img src="https://i.pinimg.com/736x/a0/47/04/a0470419306e1631ee7ba94f44e7c6d1.jpg" width="570" height="230"/>
 </p> 
-
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=5d7i3aqvhk83zhn86v8ifdx91&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=true&profanity=false&hide_remaster=true&bar_color=642421&bar_color_cover=false">
+  </a>
+</p>
 
 ## ☆ [alt](https://github.com/evil-xisumer) ☆ CUDDLES & INTERACTIONS ALWAYS OK !!!!! ASK TO FRQ
 <p align="center">
@@ -28,20 +28,15 @@
   <p align="center">
 <img src="https://64.media.tumblr.com/67e10cfc622e29ed122b731e0e762bc6/de1ccaffe8d295a3-64/s250x400/436a7a81e8ca4f589164f973d4c689553e302341.gifv" width="170" height="30"/> <img src="https://64.media.tumblr.com/c5129bb05f300ca9bc4f56ee93189926/ae83b7b8362e4704-9d/s250x400/7b688d6d992d70db31d5942a0f516918376ee62f.gifv" width="170" height="30"/>  <img src="https://64.media.tumblr.com/7a5a93e7df8159d01c44c06c6e7d336e/f51cd4fde98461ad-25/s250x400/10a2be09642f1a1765415dcabe407ef19ceb3af3.gifv" width="170" height="30"/>
   </p> 
-  <p align="center"> sort of an introject of all the mcr members. dont know how that happened. idgaf about doubles </p> 
+  <p align="center"> sort of an introject of all the mcr members. dont know how that happened. idgaf about doubles. despite my occasional delusional episodes i am FULLY aware i am not actually the real people and i dont/have never claimed to be. dont like it dont interact for the love of god </p> 
 
-  <p align="center">
-<img src="https://i.pinimg.com/736x/9f/93/7d/9f937d147d3b5814ccd940d36643cdc3.jpg" width="400" height="300"/>
-</p> 
 <p align="center">
-  <img src="https://64.media.tumblr.com/21a1a821842222e58890781dfad1d7d8/cd08a8b4b4faa9e3-72/s100x200/678f923cdc01f143f96bb43f00003a635abe7e96.gifv" width="100" height="56"/>
+  <img src="https://64.media.tumblr.com/79a07cd72e9781ee240215f76f989839/460263121339cb92-86/s400x600/1b36ade5cdf4a0d86ea6d5a26fa8b65840717ade.gifv" width="190" height="30"/>
   <img src="https://64.media.tumblr.com/4df8e1e74c9f91660b8fdc7349469afc/cd08a8b4b4faa9e3-c1/s250x400/bf777600c3e02658422553964fee270702688480.gifv" width="190" height="30"/>
-  <img src="https://64.media.tumblr.com/5c58e8a4a756ac82d5855844a6247978/7656b49e737a4985-fc/s100x200/be6fcfbeb32bbfeb6c6a02a145163d37316a2db2.webp" width="100" height="56"/>
+  <img src="https://64.media.tumblr.com/c92e1edb58a7ba1320d20b52f104dbe4/f31105e609eceb88-b5/s400x600/462bdf3a322e80d8d41f91a58c92004fe7c22105.webp" width="190" height="30"/>
   </p>
 
 
-  <p align="center"> not the worlds nastiest pervert but pretty close
-    </p>
   <p align="center">
     <img src="https://media1.tenor.com/m/kRKKzND9NsEAAAAd/puppyfrankiero-frank-iero.gif" width="120" height="110"/>
   </p>
