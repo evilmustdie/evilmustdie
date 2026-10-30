@@ -1,4 +1,4 @@
-## ☆ [alt](https://github.com/evil-xisumer) ☆ CUDDLES & INTERACTIONS ALWAYS OK !!!!! ASK TO FRQ
+##  [ ☆](https://github.com/evil-xisumer)  CUDDLES & INTERACTIONS ALWAYS OK !!!!! ASK TO FRQ
 
 
 <p align="center"> saw mcr @ wembley 10/07/26  ♡ ♡ </p> 
